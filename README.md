@@ -1,7 +1,7 @@
 [Click here](https://instructure.storage.googleapis.com/index.html#/search)
 
-[Click here](int.adepoju.org)
+[Click here](https://int.adepoju.org)
 
-[Click here](e.tectach.net)
+[Click here](https://e.tectach.net)
 
-[Click here](wea-f.github.io/Norepted/)
+[Click here](https://wea-f.github.io/Norepted/)
