@@ -1,6 +1,3 @@
 [Click here](https://instructure.storage.googleapis.com/index.html#/search)
 [Click here](int.adepoju.org)
-[Click here](math.masteryourtest.com)
-[Click here](hygiene.soapagent.com)
 [Click here](e.tectach.net)
-[Click here](duckduckgo.com)
